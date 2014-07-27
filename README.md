@@ -46,3 +46,6 @@ To the one who has resolved within the heart of hearts to seek after what is goo
 ### Chapter Two: The greater-than liar paradox
 
 Much business is a weariness.
+
+Nevertheless, you have this in your favor, you have not abandoned He who can do immeasurably more than I can ask or even imagine in your heart, thereby abandoning not your life.
+
