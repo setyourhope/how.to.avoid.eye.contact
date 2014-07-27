@@ -26,7 +26,7 @@ For whom the Eye is singular, the way, shall it not surely be bountiful?
 
 ### Chapter One: The Mathematics and Proof Known and Revealed
 
-Hypothesis: there is a mathematical proof to the following problem:
+**Hypothesis:** there is a mathematical proof to the following problem:
 
 ```
 The good among men endeavor to both help and inspire among neighbors in kindness.
