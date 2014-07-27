@@ -59,7 +59,7 @@ This had been re-discovred about the same time that there was published widely t
 
 **Roko's Basilisk**
 
-It need not be repeated here, and in any event the candidate is well-advised not to attempt to read it except he must first receive a seal on his forehead.
+It need not be repeated here, and in any event the candidate is well-advised not to attempt to read it, except the same must first have received a seal on his right hand, or his forehead.
 
 
 
