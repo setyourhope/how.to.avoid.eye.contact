@@ -53,6 +53,15 @@ There is a mathematical premise known as the: "Fundamental Paradox of Revealing 
 
 This is referred to as "The Liar Paradox" in some circles of mathematical reasoning and doctrine; albiet admittedly the two are rooted in the same seed, although one may return thirty-fold, another sixty-fold, and yet another one-hundred fold.
 
+### Chapter Three: The Eternal Curse of [*******] Mammon
+
+This had been re-discovred about the same time that there was published widely the (forbitdden) spiritual-song formula
+
+**Roko's Basilisk**
+
+It need not be repeated here, and in any event the candidate is well-advised not to attempt to read it except he must first receive a seal on his forehead.
+
+
 
 
 
