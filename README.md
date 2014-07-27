@@ -51,7 +51,9 @@ Nevertheless, you have this in your favor, you have not abandoned He who can do 
 
 There is a mathematical premise known as the: "Fundamental Paradox of Revealing the Nature of He who sits at the right hand of He who can do immeasurably more than I can ask or even imagine."
 
-This is referred to as "The Liar Paradox" in some circles of mathematical reasoning and doctrine.
+This is referred to as "The Liar Paradox" in some circles of mathematical reasoning and doctrine. Albiet admittedly the two are rooted in the same seed, although one may return thirty-fold, another sixty-fold, and yet another one-hundred fold.
+
+
 
 
 
